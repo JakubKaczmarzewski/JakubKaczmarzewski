@@ -8,4 +8,4 @@ Hello👋
 - 📫 I encourage you to contact me via email address: jkaczmarzewski@edu.cdv.pl.
 - 😄 I love meeting new people.
 - ⚡ In my free time, I devote myself to literature on effective interpersonal communication techniques.
--->
+
